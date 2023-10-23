@@ -1,5 +1,5 @@
 ## **(2141720047) Yasmine Navisha Andhani - TI_3G**
-Link Github : https://github.com/yasminenavishaa/Mobile_Pertemuan-7 
+Link Github : (https://github.com/yasminenavishaa/Mobile_Pertemuan8-UTS)
 
 # UTS
 
